@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mydreamfb
-- 👀 I’m interested in noyhing
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me ; no need of 
